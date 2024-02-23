@@ -1,0 +1,3 @@
+- 🌱 I’m currently learning everything
+- 💫 I enjoy: traveling, rock climbing, and playing sims
+- 👩‍🎓 Master's in Information Systems
